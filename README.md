@@ -27,4 +27,4 @@ In plan.
 
 ## What's next for Open String
 
-Maybe open grand unified theory. 
+Maybe open grand unified theory or open M-theory.
